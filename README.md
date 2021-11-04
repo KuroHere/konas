@@ -1,2 +1,7 @@
 # konas
- I got Cheeze hoes And a Bunch Of Fuckin' Dope
+
+Gl dont care big coder
+
+# Backup link
+
+https://anonfiles.com/1focBdSbu9/konas_rar
